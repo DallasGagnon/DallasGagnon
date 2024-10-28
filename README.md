@@ -5,7 +5,7 @@ My name is Dallas Gagnon and I am a business-trending reporter for MassLive.com.
 
 💞️ My goal is to fairly and accurately represent the communities I serve while ensuring community members feel their voices are heard.
 
-📫 You can reach me on my business email at DGagnon@MassLive.com or sending a message to 413-544-0624. 
+📫 You can reach me on my business email at DGagnon@MassLive.com or by sending a message to 413-544-0624. 
 
 😄 Pronouns: She/Her
 
